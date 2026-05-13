@@ -17,7 +17,7 @@
 |----------|-------|
 | **Video Name** | `10-WEIRD-Gaming-Stories-of-March-2026` |
 | **Original Link** | [YouTube Video](https://www.youtube.com/watch?v=Aj4r5MZG5AU) |
-| **Total Size** | **2 parts** - **80.91 MB** |
+| **Total Size** | **2 parts** - **48.48 MB** |
 | **Quality** | **360p (Free)** |
 
 ---
